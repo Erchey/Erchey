@@ -6,7 +6,7 @@
   
 - 📫 How to reach me
   E-mail: okpalakingsleyeche@outlook.com
-  LinkedIn: www.linkedin.com/in/kingsley-okpala-b93539126
+  LinkedIn: www.linkedin.com/in/kingsley-okpala
 
 
 <!---
